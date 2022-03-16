@@ -1,1 +1,1 @@
-# 20221IntroCienciaDatos_Proy2JuanDavidSarmiento_DanielHern-ndezG-mez
+# 20221IntroCienciaDatos_Proy2JuanDavidSarmiento_DanielHernandezGomez
